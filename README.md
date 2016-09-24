@@ -1,2 +1,0 @@
-# rileyhuggins.com
-rileyhuggins.com
